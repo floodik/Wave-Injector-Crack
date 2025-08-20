@@ -1,2 +1,1 @@
-# Wave-Injector-Crack
-Wave Injector Crack
+PASSWORD Funpay-@DobrinyaShop
